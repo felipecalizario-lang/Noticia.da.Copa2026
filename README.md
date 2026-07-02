@@ -1,0 +1,1 @@
+# Noticia.da.Copa2026
